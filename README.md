@@ -1,1 +1,1 @@
-Data analytics project Sem 2.
+Data analytics project Sem 2nd.
